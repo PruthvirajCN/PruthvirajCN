@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hii I am PruthvirajCN:
 I'm curently learning artificial intelligence<br>Ask me about programming C,python,java<br>Reach out me at rajpruthvi410@gmail.com
 
 
